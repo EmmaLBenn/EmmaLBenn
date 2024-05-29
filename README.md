@@ -7,7 +7,7 @@ I'm Emma! I am a BSc Psychology student at the University of Sussex currently co
 - :dog2: I spend most of my time outside of work reading, walking dogs or building LEGO 
 
 ### Contact me 📫
-[*LinkedIn*](www.linkedin.com/in/emma-benn)
+[*LinkedIn*](https://www.linkedin.com/in/emma-benn/)
 
 [*ResearchGate*](https://www.researchgate.net/profile/Emma-Benn-2)
 
